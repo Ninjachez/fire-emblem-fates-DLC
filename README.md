@@ -1,5 +1,5 @@
 # fire emblem fates dlc
-CLICK THE "CODE" DROPDOWN, THEN DOWNLOAD ZIP!!
+## CLICK THE ROM ABOVE, THEN CLICK ON DOWNLOAD RAW ON THE RIGHT HAND SIDE OR ELSE THE DOWNLOAD WILL FAIL
 
 
 Hey! You found my website! Thanks for downloading.
